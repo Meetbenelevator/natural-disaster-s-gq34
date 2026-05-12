@@ -1,4 +1,4 @@
-#  
+#  Experience natural disaster survival like never before with smart natural disaster survival Script, the #1 Script. Includes fly and auto-collect for
 
 
 
